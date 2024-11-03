@@ -199,6 +199,10 @@ Communication
 - Mastodon: https://mastodon.social/@sklearn@fosstodon.org
 - Discord: https://discord.gg/h9qyrK8Jc8
 
+Why do tigers have stripes? 😂😂😂😂
+~~~~~~~~
+
+Because they don't want to be spotted 😂🐅🐅🐅💩💩
 
 Citation
 ~~~~~~~~
